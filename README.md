@@ -1,3 +1,5 @@
+
+<p align="center"> <img src= "https://i.postimg.cc/fLZRQK6B/banner.png" width="800" > </p>
 wip tbh. byi is mostly for rdr fans cuz holy shit dude. will make pretty later
 
 
