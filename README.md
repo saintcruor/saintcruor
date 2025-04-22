@@ -5,7 +5,7 @@
 
 <p align="center"> •⠀⠀⠀⠀⠀<a href="https://chopsuey.atabook.org" title="Atabook">atabook</a> </p>
 <p align="center"> •  ⠀ ⠀<a href="https://pronouns.cc/@finalman" title="Pronouns.cc">sys prns.cc</a> </p>
-<p align="center"> •  ⠀ ⠀<a href="https://pluralkit.xyz/f/yxeebg" title="Pronouns.cc">pluralkit</a> </p>
+<p align="center"> •  ⠀ ⠀<a href="https://pluralkit.xyz/f/yxeebg" title="Pluralkit">pluralkit</a> </p>
 
 
 <p align="center"> <img src= "https://files.catbox.moe/tqn0k7.png" width="600" > 
