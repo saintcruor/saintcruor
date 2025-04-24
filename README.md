@@ -16,7 +16,7 @@
 
 <a href="https://dni-criteria.carrd.co/" title="Link to carrd listing basic dni criteria">the basics</a>, xenosatanist, radqueer, proship (including alts: darkship, comship. peacefic is ok), anti-endogenic and <a href="https://pluralpedia.org/w/Willogenic" title="definition">willogenic</a> systems, pro-contact / complex contact paraphilia, zionists/stand with israel, over 19 (18 is thin ice), anti-furries, anti-therians, against selfshipping. And also against paraphiles (that at most seek help, or are anti-contact.)
 
-psuedocest shippers like athur x john i fucking HATE you, along with dutch x john or arthur. side eye. i also hate bill williamson sorry.
+psuedocest shippers like athur x john i fucking HATE you, along with dutch x john or arthur. side eye. Vanderbell and morbell will get you blocked instantly too, sorry. i also hate bill williamson.
 
 if you make sensual jokes or carnal comments we'll stop talking to you, you're weird. we dont like you.
 
