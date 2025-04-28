@@ -35,7 +35,7 @@ We are very, <em> very </em> shy. We usually won't interact first unless we're f
 
 Host selfships and would prefer if you /don't/ make romantic or carnal jokes about characters. Don't flirt with any of us either.
 
-I'm not a fan of a bunch of ships. Just know I'm a fan of charthur, johnibgal, and vandermatthews. Literally thats it. Only ones I can tolerate, sorry.
+I'm not a fan of a bunch of ships. Just know I'm a fan of charthur, johnibgal, and vandermatthews. Literally thats it. Only ones I can tolerate, sorry. Jovier and sadigal takes 20 years of my life everytime i see it.
 
 Sexual comments bother us if you're not a close friend, please avoid them. We don't like the "im gonna touch you" jokes either.
 
