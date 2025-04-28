@@ -14,11 +14,11 @@
 <img align="left" src= "https://files.catbox.moe/kga7rm.gif" width="200" height="200" > <b> <em> " DO NOT INTERACT !!! I WILL BITE YOU !!! " </em> </b>
   
 
-<a href="https://dni-criteria.carrd.co/" title="Link to carrd listing basic dni criteria">the basics</a>, xenosatanist, radqueer, proship (including alts: darkship, comship. peacefic is ok), anti-endogenic and <a href="https://pluralpedia.org/w/Willogenic" title="definition">willogenic</a> systems, pro-contact / complex contact paraphilia, zionists/stand with israel, over 19 (18 is thin ice), anti-furries, anti-therians, against selfshipping. And also against paraphiles (that at most seek help, or are anti-contact.)
+<a href="https://dni-criteria.carrd.co/" title="Link to carrd listing basic dni criteria">the basics</a>, xenosatanist, radqueer, proship/comship/darkship*, anti-non traumagenic systems, pro-contact / complex contact paraphilia, zionists/stand with israel, over 19 (18 is thin ice), queer exclusionists (anti-lesboy, anti-gaybian)
 
-psuedocest shippers like athur x john i fucking HATE you, along with dutch x john or arthur. side eye. Vanderbell and morbell will get you blocked instantly too, sorry. i also hate bill williamson.
+We personally avoid fans of hazbin hotel/helluva boss, dandy's world, eddsworld, mouthwashing, supernatural, mandela catalogue, the magnus archives, and SMPs, but we wouldn't entirely stop you.
 
-if you make sensual jokes or carnal comments we'll stop talking to you, you're weird. we dont like you.
+*not into shipcourse, but those communities are problematic in themself. Keep your fantasies to yourself creeps.
 
 <p align="center">  ════════════════════════════════════════════════════════════════════════ </p>
 
@@ -29,13 +29,16 @@ if you make sensual jokes or carnal comments we'll stop talking to you, you're w
 <img align="right" src= "https://files.catbox.moe/wxq0sq.gif" width="200" height="200" >
 <p align="right"> <b> <em> " BEFORE YOU INTERACT WITH US !!! " </em> </b> </p> 
 
-<p align="right"> We are a plurallet praesigenic <a href="https://pluralpedia.org/w/Parasian" title="definition">parasian</a> *plural* , we switch in-between "i/me" and "we/us". Do NOT use they/them if referring to us collectively, ask prns and names instead. We do not mind if you ask who is fronting. We exclusively give our simplyplural to people we trust, but we keep our pluralkit public nonetheless but neither are updated frequently, rather a headcount and information archival.
+<p align="right"> We are a praesigenic <a href="https://pluralpedia.org/w/Parasian" title="definition">parasian</a> plurallet , we switch in-between "i/me" and "we/us". Do NOT use they/them if referring to us collectively, use he/him or refer to us as chimera. We do not mind if you ask who is fronting. We exclusively give our simplyplural to people we trust, but we keep our pluralkit public nonetheless but neither are updated frequently, rather a headcount and information archival.
 
 We are very, <em> very </em> shy. We usually won't interact first unless we're feeling brave enough to crown someone or say hi. if we share an interest and we interact, we're most likely asking to be friends/mutuals.
 
 Host selfships and would prefer if you /don't/ make romantic or carnal jokes about characters. Don't flirt with any of us either.
 
-We don't like the "im gonna touch you" jokes. You're kinda freaking weird dude.
+I'm not a fan of a bunch of ships. Just know I'm a fan of charthur, johnibgal, and vandermatthews. Literally thats it. Only ones I can tolerate, sorry.
+
+Sexual comments bother us if you're not a close friend, please avoid them. We don't like the "im gonna touch you" jokes either.
+
 
 We walk away or go silent if you make us uncomfortable usually, or we just say "oh" or "uh". We make it obvious. </p> 
 
