@@ -4,7 +4,7 @@
 <p align="center"> <b> <em> " SWEET RELIGION " </em> </b> </p>
 
 <p align="center"> •⠀⠀⠀⠀⠀<a href="https://aerosmith.atabook.org" title="Atabook">atabook</a> </p>
-<p align="center"> •  ⠀ ⠀<a href="https://pronouns.cc/@finalman" title="Pronouns.cc">sys prns.cc</a> </p>
+<p align="center"> •  ⠀ ⠀<a href="https://comingsoon" title="coming soon">rentry</a> </p>
 <p align="center"> •  ⠀ ⠀<a href="https://pluralkit.xyz/f/yxeebg" title="Pluralkit">pluralkit</a> </p>
 
 <p align="center"> <b> <em> " PERSECUTE THE WEAK AND WILLING. " </em> </b> </p>
