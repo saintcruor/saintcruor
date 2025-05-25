@@ -1,49 +1,48 @@
 
-<p align="center"> <img src= "https://i.postimg.cc/dtgh4gPY/not.gif" > </p>
+<p align="center"> <img src= "https://i.postimg.cc/L5J4HjBS/saintcruor.png" > </p>
 
-<p align="center"> <b> <em> " NOR THE BED THAT IS HAUNTED, " </em> </b> </p>
+<p align="center"> <b> <em> " SWEET RELIGION " </em> </b> </p>
 
 <p align="center"> •⠀⠀⠀⠀⠀<a href="https://chopsuey.atabook.org" title="Atabook">atabook</a> </p>
 <p align="center"> •  ⠀ ⠀<a href="https://pronouns.cc/@finalman" title="Pronouns.cc">sys prns.cc</a> </p>
 <p align="center"> •  ⠀ ⠀<a href="https://pluralkit.xyz/f/yxeebg" title="Pluralkit">pluralkit</a> </p>
 
-<p align="center"> <b> <em> " WITH A BLANKET OF THIRST. " </em> </b> </p>
+<p align="center"> <b> <em> " PERSECUTE THE WEAK AND WILLING. " </em> </b> </p>
 
 
-<p align="center"> <img src= "https://files.catbox.moe/tqn0k7.png" width="600" > 
+<p align="center"> <img src= "https://i.postimg.cc/857pBhFY/div.png" width="600" > 
 
 
-<img align="left" src= "https://i.postimg.cc/FH20k7s0/1.png" width="200" height="200" > <b> <em> do not interact </em> </b>
+<img align="left" src= "https://i.postimg.cc/k4LnjBKg/1.gif" width="200" height="200" > <b> <em> ⠀do not interact </em> </b>
   
 
-<a href="https://dni-criteria.carrd.co/" title="Link to carrd listing basic dni criteria">the basics</a>, xenosatanist, radqueer, proship/comship/darkship*, anti-non traumagenic systems, pro-contact / complex contact paraphilia, zionists/stand with israel, over 19 (18 is thin ice), queer exclusionists (anti-lesboy, anti-gaybian)
+⠀⠀We will just avoid/block you if you make us uncomfortable! Just know we are pro m-spec lesbian/gay, anti-radqueer, pro-non traumagenic systems, and we're anti leaning on shipcourse.
 
-We personally avoid fans of hazbin hotel/helluva boss, dandy's world, eddsworld, mouthwashing, supernatural, mandela catalogue, the magnus archives, and SMPs, but we wouldn't entirely stop you.
 
-*not into shipcourse, but those communities are problematic in themself. Keep your fantasies to yourself creeps.
+⠀⠀We personally avoid fans of hazbin hotel/helluva boss, dandy's world, eddsworld, mouthwashing, supernatural, mandela catalogue, the magnus archives, and SMPs, but we wouldn't entirely stop you.
 
-<p align="center">  ════════════════════════════════════════════════════════════════════════ </p>
-
-<p align="center">  <img src= "https://i.postimg.cc/RFmfGytF/break-my-heart.png" width="200" height="200" > </p>
+⠀⠀We're personally uncomfortable with anyone over 18 interacting. 
 
 <p align="center">  ════════════════════════════════════════════════════════════════════════ </p>
 
-<img align="right" src= "https://i.postimg.cc/6Qnnrtyg/2.png" width="200" height="200" >
-<p align="right"> <b> <em> before you interact </em> </b> </p> 
+<p align="center">  <img src= "https://i.postimg.cc/HkTTPGcX/sweet-religion.png" width="200" height="200" > </p>
 
-<p align="right"> We are a praesigenic <a href="https://pluralpedia.org/w/Parasian" title="definition">parasian</a> plurallet , we switch in-between "i/me" and "we/us". Do NOT use they/them if referring to us collectively, use he/him or refer to us as chimera. We do not mind if you ask who is fronting. We exclusively give our simplyplural to people we trust, but we keep our pluralkit public nonetheless but neither are updated frequently, rather a headcount and information archival.
+<p align="center">  ════════════════════════════════════════════════════════════════════════ </p>
 
-We are very, <em> very </em> shy. We usually won't interact first unless we're feeling brave enough to crown someone or say hi. if we share an interest and we interact, we're most likely asking to be friends/mutuals.
+<img align="right" src= "https://i.postimg.cc/2yvCgr7F/2.gif" width="200" height="200" >
+<p align="right"> <b> <em> before you interact ⠀⠀</em> </b> </p> 
 
-Host selfships and would prefer if you /don't/ make romantic or carnal jokes about characters. Don't flirt with any of us either.
+<p align="right"> 
+We're plural consiousflux. We collectively go by chimera/sentry, he/ask. Do not ask one of us to front, but we're ok ⠀⠀with you asking who is fronting.⠀⠀
 
-I'm not a fan of a bunch of ships. Just know I'm a fan of charthur, johnibgal, and vandermatthews. Literally thats it. Only ones I can tolerate, sorry. Jovier and sadigal takes 20 years of my life everytime i see it.
+We're shy btw. We will interact super dry at first, since we have horrible social anxiety.
+
+We're not a fan of a bunch of ships, just don't mention any in front of us. There is a good chance we'll avoid you if you like something /we/ don't like.
 
 Sexual comments bother us if you're not a close friend, please avoid them. We don't like the "im gonna touch you" jokes either.
 
+We walk away or go silent if you make us uncomfortable usually. We're not expecting an apology, we just prefer you not to talk to us afterwards.</p> 
 
-We walk away or go silent if you make us uncomfortable usually, or we just say "oh" or "uh". We make it obvious. </p> 
 
-
-<p align="center"> <img src= "https://files.catbox.moe/tqn0k7.png" width="600" > 
+<p align="center"> <img src= "https://i.postimg.cc/857pBhFY/div.png" width="600" > 
 
