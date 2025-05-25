@@ -26,11 +26,8 @@
 ⠀⠀
 ⠀⠀
 
-<p align="center">  ════════════════════════════════════════════════════════════════════════ </p>
-
 <p align="center">  <img src= "https://i.postimg.cc/HkTTPGcX/sweet-religion.png" width="200" height="200" > </p>
 
-<p align="center">  ════════════════════════════════════════════════════════════════════════ </p>
 
 <img align="right" src= "https://i.postimg.cc/2yvCgr7F/2.gif" width="200" height="200" >
 <p align="right"> <b> <em> before you interact ⠀⠀</em> </b> </p> 
