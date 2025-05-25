@@ -3,7 +3,7 @@
 
 <p align="center"> <b> <em> " SWEET RELIGION " </em> </b> </p>
 
-<p align="center"> •⠀⠀⠀⠀⠀<a href="https://chopsuey.atabook.org" title="Atabook">atabook</a> </p>
+<p align="center"> •⠀⠀⠀⠀⠀<a href="https://aerosmith.atabook.org" title="Atabook">atabook</a> </p>
 <p align="center"> •  ⠀ ⠀<a href="https://pronouns.cc/@finalman" title="Pronouns.cc">sys prns.cc</a> </p>
 <p align="center"> •  ⠀ ⠀<a href="https://pluralkit.xyz/f/yxeebg" title="Pluralkit">pluralkit</a> </p>
 
@@ -22,6 +22,9 @@
 ⠀⠀We personally avoid fans of hazbin hotel/helluva boss, dandy's world, eddsworld, mouthwashing, supernatural, mandela catalogue, the magnus archives, and SMPs, but we wouldn't entirely stop you.
 
 ⠀⠀We're personally uncomfortable with anyone over 18 interacting. 
+⠀⠀
+⠀⠀
+⠀⠀
 
 <p align="center">  ════════════════════════════════════════════════════════════════════════ </p>
 
