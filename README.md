@@ -1,5 +1,5 @@
 
-<p align="center"> <img src= "https://i.postimg.cc/9fD2bTxd/my-black-no1.gif" width="900"> </p>
+<p align="center"> <img src= "https://i.postimg.cc/fb8BMz95/eldritch.webp" width="900"> </p>
 
 
 wip
@@ -17,13 +17,6 @@ wip
 ⠀⠀We personally avoid fans of hazbin hotel/helluva boss, dandy's world, eddsworld, mouthwashing, supernatural, mandela catalogue, the magnus archives, and SMPs, but we wouldn't entirely stop you.
 
 ⠀⠀We're personally uncomfortable with anyone over 18 interacting. 
-⠀⠀
-⠀⠀
-⠀⠀
-⠀⠀
-⠀⠀
-
-<p align="center">  <img src= "https://i.postimg.cc/HkTTPGcX/sweet-religion.png" width="200" height="200" > </p>
 
 
 <img align="right" src= "https://i.postimg.cc/2yvCgr7F/2.gif" width="200" height="200" >
