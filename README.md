@@ -1,16 +1,11 @@
 
-<p align="center"> <img src= "https://i.postimg.cc/L5J4HjBS/saintcruor.png" > </p>
-
-<p align="center"> <b> <em> " SWEET RELIGION " </em> </b> </p>
-
-<p align="center"> •⠀⠀⠀⠀⠀<a href="https://aerosmith.atabook.org" title="Atabook">atabook</a> </p>
-<p align="center"> •  ⠀ ⠀<a href="https://comingsoon" title="coming soon">rentry</a> </p>
-<p align="center"> •  ⠀ ⠀<a href="https://pluralkit.xyz/f/yxeebg" title="Pluralkit">pluralkit</a> </p>
-
-<p align="center"> <b> <em> " PERSECUTE THE WEAK AND WILLING. " </em> </b> </p>
+<p align="center"> <img src= "https://i.postimg.cc/9fD2bTxd/my-black-no1.gif" width="900"> </p>
 
 
-<p align="center"> <img src= "https://i.postimg.cc/857pBhFY/div.png" width="600" > 
+wip
+
+<p align="center"> <b> <em> " loving you, was like loving the dead " </em> </b> </p>
+
 
 
 <img align="left" src= "https://i.postimg.cc/k4LnjBKg/1.gif" width="200" height="200" > <b> <em> ⠀do not interact </em> </b>
