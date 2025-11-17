@@ -3,6 +3,8 @@
 
 ![](https://komarev.com/ghpvc/?username=saintcruor&label=BULLSEYE!)
 
+[sign my ata!](https://aerosmith.atabook.org/?page=1)
+
 </div>
 
 <p align="center"> <img src= "https://i.postimg.cc/nLsnQkSv/banner.png" width="400"> </p>
@@ -26,4 +28,4 @@
 <p>　</p>
 
 
-<p align="center"> the only byi i have is that im really gay and autsitic. lol </p>
+<p align="center"> the only byi i have is that im really gay and autistic. lol </p>
