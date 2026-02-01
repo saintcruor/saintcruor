@@ -10,7 +10,7 @@
 <p align="center"> <img src= "https://i.postimg.cc/nLsnQkSv/banner.png" width="400"> </p>
 
 
-<p align="center"> hey im desmond, but i go by <a href="https://pronouns.cc/@steverogers">multitude</a> of other names </p>
+<p align="center"> hey im desmond, but i go by <a href="https://pronouns.cc/@bullseyes">multitude</a> of other names </p>
 <p align="center"> & pronouns (he/him & sie/hir). my main rentry is <a href="https://rentry.co/winterpyre">here</a>. </p>
 
 
