@@ -22,7 +22,7 @@
 
 <p align="center"> proship/comship/darkship, radqueer, queer exclusionist </p>
 <p align="center"> zionist, over 19, anti-nontraumagenic systems, and if </p>
-<p align="center"> <b> you selfship with any of my <a href="https://rentry.co/champagnecoast">f/os</a> or are a double of <a href="https://marvel.fandom.com/wiki/Robert_Reynolds_(Earth-616)">me</a>. </b> </p>
+<p align="center"> <b> you selfship with any of my f/os or are a double of <a href="https://marvel.fandom.com/wiki/Robert_Reynolds_(Earth-616)">me</a>. </b> </p>
 
 
 <p>　</p>
