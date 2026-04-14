@@ -7,7 +7,7 @@
 
 </div>
 
-<p align="center"> <img src= "https://i.postimg.cc/9XNfH3V5/2.gif" width="400"> </p>
+<p align="center"> <img src= "https://i.postimg.cc/RFtQw1v6/2.gif" width="400"> </p>
 
 
 <p align="center"> hey im desmond, but i go by <a href="https://pronouns.cc/@bullseyes">multitude</a> of other names </p>
@@ -22,7 +22,7 @@
 
 <p align="center"> proship/comship/darkship, radqueer, queer exclusionist </p>
 <p align="center"> zionist, over 19, anti-nontraumagenic systems, and if </p>
-<p align="center"> <b> you selfship with any of my f/os or are a double of one of my kins.</a>. </b> </p>
+<p align="center"> <b> you selfship with any of my f/os or are a double of one of my kins</a>. </b> </p>
 
 
 <p>　</p>
