@@ -10,22 +10,14 @@
 <p align="center"> <img src= "https://i.postimg.cc/RFtQw1v6/2.gif" width="400"> </p>
 
 
-<p align="center"> hey im desmond, but i go by <a href="https://pronouns.cc/@bullseyes">multitude</a> of other names </p>
-<p align="center"> & pronouns (he/him & sie/hir). my main rentry is <a href="https://rentry.co/winterpyre">here</a>. </p>
+<p align="center"> im desmond (he/sie). my main carrd is <a href="https://frumours.carrd.co/">here</a>. </p>
 
 
 <p>　</p>
 
+<p align="center"> i don't have a dni. i block people i dont like. </p>
+<p align="center"> just be aware any of my ponies are all of my f/os. </p>
+<p align="center"> im a nonsharing selfshipper, so ill be uncomfortable </p>
+<p align="center"> if you make comments about them of any sort. </p>
 
-<p align="center"> i don't particularly have a DNI, but if you would like to </p>
-<p align="center"> be friends,　　　　 I ask that you avoid me if you are: </p>
-
-<p align="center"> proship/comship/darkship, radqueer, queer exclusionist </p>
-<p align="center"> zionist, over 19, anti-nontraumagenic systems, and if </p>
-<p align="center"> <b> you selfship with any of my f/os or are a double of one of my kins</a>. </b> </p>
-
-
-<p>　</p>
-
-
-<p align="center"> the only byi i have is that im really gay and autistic. lol </p>
+<p align="center"> i get nervous really easily so i may not respond fast. </p>
